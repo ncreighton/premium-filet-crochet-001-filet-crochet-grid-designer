@@ -1,0 +1,2 @@
+# premium-filet-crochet-001-filet-crochet-grid-designer
+Tired of squinting at graph paper or wrestling with spreadsheets to design your filet crochet patterns? The Filet Crochet Grid Designer turns Notion into your personal, interactive design studio—no more messy grids or lost counts.  This Notion template eliminates the guesswork and manual recalculations of traditional filet crochet design. With an i
